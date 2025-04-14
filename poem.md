@@ -2,7 +2,7 @@
 
 The sun will rise and skies will glow,
 The rivers gleam and soft winds ___.
-[Your line here]
+The blossoms hum where robins throng.
 
 The trees will sing, the hills will sigh,
 The morning breaks as birds take ___.
